@@ -1,2 +1,1 @@
-https://www.mediafire.com/file/36odnetfiyiq7dn/_YAMITEKIEROMUCHO_19127100.apk/file**
-**
+file:///C:/Users/motit/.vscode/extensions/github.copilot-1.372.0/Untitled-1.html
